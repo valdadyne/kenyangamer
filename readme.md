@@ -1,0 +1,1 @@
+This is a site about gaming news and reviews
